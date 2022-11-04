@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @la-jig
+- 📫 email: lawrencewilliams1030@gmail.com
+- 
